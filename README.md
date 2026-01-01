@@ -46,7 +46,7 @@ Composed in the late 9th century during Tibet's "dark period" following imperial
 
 # Śaraṇāgati
 ## Śrīla Bhaktivinoda Ṭhākura
-### Bengali Devotional Poetry / Bhakti Yoga
+### Gauḍīya Vaiṣṇava Devotional Poetry / Bhakti Yoga
 #### NEVER BEFORE TRANSLATED BENGALI 
 
 Fifty-nine songs of complete surrender composed in 1893 in a tiny room in Godrumadvīpa, capturing the raw transformation of a soul who had exhausted all worldly philosophies. This text represents the emotional core of the Gauḍīya Vaiṣṇava renaissance, previously available only in academic translations that flattened its fiery devotional intensity. Earlier English versions from the 1970s-80s treated it as religious literature rather than living spiritual fire. This rendering restores the visceral quality of Bhaktivinoda's tears and urgency, presenting surrender not as theological concept but as the only response when "the false 'I' dissolves" at the feet of Śrī Śrī Gaura-Nitāi.
