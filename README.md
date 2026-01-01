@@ -3,7 +3,7 @@ AI translation and transcription of novel dharma texts from various traditions
 
 # Table of Contents
 
-![Netra Tantra Cover](https://github.com/litepresence/Netra-Tantra/raw/main/Netra.jpg)  
+![Netra Tantra Cover](https://github.com/litepresence/Netra-Tantra/blob/master/Cover.png) 
 [Netra-Tantra](https://github.com/litepresence/Netra-Tantra)  
 # Netra Tantra  
 ## Amṛteśvarī & Amṛteśvara  
